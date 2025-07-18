@@ -10,6 +10,10 @@ akshdkjahsdkjashdkjas
 ¿Cómo podrías aplicar lo que has visto en tu perfil profesional?
 
 ### Actividad 02
+ok
+
+### Actividad 03
+
 
 
 
